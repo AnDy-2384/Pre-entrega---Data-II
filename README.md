@@ -1,0 +1,1 @@
+Los archivos Pre_entrega_AndreaGomez 1 y Pre_entrega_AndreaGomez, no los pude eliminar, eran provisorios, el código final se encuentra en el archivo Pre_entrega_AndreaGomez_(versión_final), mil disculpas.
